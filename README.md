@@ -9,7 +9,7 @@
 -📫 How to reach me:
 </br>
 
--Email: student.sumansaurav592@gmai.com
+-Email: sumansaurav592@gmai.com
 </br>
 -LinkedIn: https://bit.ly/3VpX7eS
 </br>
